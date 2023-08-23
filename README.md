@@ -1,9 +1,8 @@
 # [DeliShel](http://127.0.0.1:5500/)
-![33333](https://github.com/risha2004/DeliShel/assets/125794430/fa1413b6-4fbe-45d5-b268-29bd164196b6)
+![delishel1](https://github.com/risha2004/DeliShel/assets/125794430/b69c543b-05da-44c5-bf29-e26d34a2c8ad)
+![09](https://github.com/risha2004/DeliShel/assets/125794430/39475b17-638b-462f-a153-6ac22140bed5)
+![98](https://github.com/risha2004/DeliShel/assets/125794430/096b7633-15b0-4803-822e-fa76b0df8db5)
+![delishel 2](https://github.com/risha2004/DeliShel/assets/125794430/841c434d-caa0-4319-b510-b9772dcd561b)
 
-
-![9](https://github.com/risha2004/DeliShel/assets/125794430/3518e071-a1f1-4cf4-beec-28ee1b53cd4b)
-
-![0](https://github.com/risha2004/DeliShel/assets/125794430/56a656f9-d625-4237-874c-128374b536ed)
-![00](https://github.com/risha2004/DeliShel/assets/125794430/4912f784-f206-48ec-b141-d86b985c9f4d)
-![11](https://github.com/risha2004/DeliShel/assets/125794430/5f815d41-8fe1-46e3-90f7-352071a546ee)
+![11](https://github.com/risha2004/DeliShel/assets/125794430/cd4df018-3dbc-4358-bc07-39c84de02cd8)
+![66](https://github.com/risha2004/DeliShel/assets/125794430/1d983ee3-c6d0-45b5-8a00-6548cec9cc5a)
